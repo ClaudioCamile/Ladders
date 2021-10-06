@@ -1,6 +1,6 @@
 ![oldLadder png](https://user-images.githubusercontent.com/91435534/136277460-76d14873-f9b6-4b58-912d-f1dde9aa7397.png)
 
-<a href="https://drive.google.com/file/d/1hjvRk-qj2KELSpHxdPPGqmUEzEWtw-mK/view?usp=sharin" target="_blank">Écouter pour écrire</a>
+<a href="https://drive.google.com/file/d/1hjvRk-qj2KELSpHxdPPGqmUEzEWtw-mK/view?usp=sharin" target="_self">Écouter pour écrire</a>
 
 People usually do not think about ladders until they have to climb one. 
 Still, it is a common thing, seen in a variety of places - a tool used to access roofs, lofts and other high places.

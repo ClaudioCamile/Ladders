@@ -1,7 +1,6 @@
 ![oldLadder png](https://user-images.githubusercontent.com/91435534/136277460-76d14873-f9b6-4b58-912d-f1dde9aa7397.png)
 
-<a>
-[go](https://drive.google.com/file/d/1hjvRk-qj2KELSpHxdPPGqmUEzEWtw-mK/view?usp=sharin){:target="_blank" rel="noopener"}
+<a href="https://drive.google.com/file/d/1hjvRk-qj2KELSpHxdPPGqmUEzEWtw-mK/view?usp=sharin">
 Écouter pour écrire
 </a>
 

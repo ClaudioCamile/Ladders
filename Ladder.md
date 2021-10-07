@@ -5,21 +5,18 @@
 
 People usually do not think about ladders until they have to climb one. 
 Still, it is a common thing, seen in a variety of places - a tool used to access roofs, lofts and other high places.
+People usually do not think about ladders until they have to climb one. Still, it is a common thing, seen in a variety of places - a tool used to access roofs, lofts and other high places.
 
-Everything is accurate and correct, 
-but when it comes to describing the development in man, 
-the scale takes on a deeper - pictorial - metaphorical meaning. 
+Everything is accurate and correct, but when it comes to describing the development in man, the scale takes on a deeper - pictorial - metaphorical meaning.
 
-I really like ladders, since I was young, 
-I loved to climb them, walk on them and imagine how I climb more and more, 
-up, and higher than that, 
-to the summit, 
-to the fresh and clear air.
+I really like ladders, since I was young, I loved to climb them, walk on them and imagine how I climb more and more, up, and higher than that, to the summit, to the fresh and clear air.
 
-And there, in that place, begins to dream my life. 
+And there, in that place, begins to dream my life.
 
-Every person is entitled to dream his own life, even if it remains a dream, for him it is a reality. 
+Every person is entitled to dream his own life, even if it remains a dream, for him it is a reality.
 
-How good there is around us, and in ourselves, 
+How good there is around us, and in ourselves,just to look and observe and say thank you.
 
-just to look and observe and say thank you.
+Every piece of code we write that can leverage many people's lives is a virtual ladder, and writing this journey is like a real climb to a new frontier, which many can also rise by.
+
+So it would be wise to take seriously what we do, respect and rejoice in our involvement in the fabric of life. Ours and everyone's.
